@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @stamod
+- 👋 Hi, I’m @Zxc
 - 👀 I’m interested in all scrpit
 - 🌱 I’m currently learning:html5
 - 💞️ I’m looking to collaborate on Wechat
